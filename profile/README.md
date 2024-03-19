@@ -1,8 +1,8 @@
 カーリング女子 世界選手権 日本は2連敗 通算成績1勝2敗カーリング女子の世界選手権に出場している日本は17日、予選リーグの第2戦でトルコ、第3戦でデンマークと対戦し、いずれも敗れて通算成績を1勝2敗としました。
 
-<strong>🔴生中継▶ [https://sports2tv.live/curling](https://sports2tv.live/jp-curling/)</strong>
+<strong>🔴生中継▶ [https://sports2tv.live/curling/](https://sports2tv.live/jp-curling/)</strong>
 
-<strong>🔴生中継▶ [https://sports2tv.live/curling](https://sports2tv.live/jp-curling/)</strong>
+<strong>🔴生中継▶ [https://sports2tv.live/curling/](https://sports2tv.live/jp-curling/)</strong>
 
 カナダで行われているカーリング女子の世界選手権は、予選リーグで13チームが総当たりで対戦し、上位6チームがプレーオフに進みます。
 
